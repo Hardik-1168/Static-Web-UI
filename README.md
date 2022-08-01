@@ -1,0 +1,1 @@
+# Static-Web-UI![screencapture-file-C-Users-dell-Desktop-Hardik-Static-web-UI-index-html-2022-08-01-17_01_35](https://user-images.githubusercontent.com/109802205/182151263-29abac7d-f250-42e0-b717-27ca00dfd208.png)
